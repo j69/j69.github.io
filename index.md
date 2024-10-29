@@ -6,6 +6,7 @@ When I'm part of projects that stimulate my imagination I tend to make unpredict
 * Brew Coffee and love making vegan food and deseerts
 * Obsessed with star and rockets 🚀
 * Music things like Playing Guitar & Piano
-* Train parrots and cats. Want some bulldog
+* Selling guitars nad musical stuff
+* Training parrots and cats. Want some bulldog
 
 Also making [progress page](https://j69.github.io/progress.md)
